@@ -2,3 +2,4 @@
 
 **LATIHAN SESI 6**
 
+Latihan Sesi 6 ini cocok untuk penggunaan tugas
